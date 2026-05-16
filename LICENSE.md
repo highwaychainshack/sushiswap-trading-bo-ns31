@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with smart Trading Bot for 1inch trading bot | sniper-trades & slippage-control, the #1 1inch trading bot. Includes sniper-trades and slippage-control for a
 
 
 
